@@ -8,6 +8,6 @@
 <b>Telegram</b>  : @Zafiyetsiz0 
 
 <br>
-<b> Instagram </b> : @Zafiyetsiz
+<b> Instagram </b> : @Zafiyetsiz 
 
 
