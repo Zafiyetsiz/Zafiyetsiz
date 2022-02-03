@@ -6,8 +6,10 @@
 - 📫 You can contact me on </br>
 
 <b>Telegram</b>  : @Zafiyetsiz0 
-
 <br>
 <b> Instagram </b> : @Zafiyetsiz 
+<br>
+<b>  Discord  </b> : @Zafiyetsiz#4172
+
 
 
